@@ -1,0 +1,2 @@
+# premium-mini-chair-001-miniature-chair-turned-leg-1
+Struggling to design miniature chair legs that actually look proportional and elegant? You're spending hours sketching when you should be building.  The Miniature Chair &amp; Turned Leg 1:12 Craft Hub is a complete Notion template that organizes every aspect of 1:12 scale chair design—from turned leg measurements to assembly tracking. Skip the guesswor
